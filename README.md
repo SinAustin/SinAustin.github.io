@@ -1,2 +1,4 @@
 # SinAustin.github.io
-Profolio
+
+Xlegic Howard Sin'Austin
+https://www.linkedin.com/in/xlegic-sinaustin/
